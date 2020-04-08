@@ -1,4 +1,4 @@
-How Day Trade Living Management
+How Day Trade Living
 ==============
 
 # Giới thiệu
@@ -7,7 +7,7 @@ Một cuốn sách không bao giờ có thể thay đổi một cuộc đời. B
 
 ![How-Day-Trade-Living-Management.md](/9781535585958.jpg)
 
-How-Day-Trade-Living là cuốn sách được đánh giá nhiều nhất về chủ đề trading trên amazon. Có thể vì giá của nó chỉ là 2.99 đô Mỹ và nó phù hợp với người mới bắt đầu tìm hiểu về trading.
+How-To-Day-Trade-For-A-Living là cuốn sách được đánh giá nhiều nhất về chủ đề trading trên amazon. Có thể vì giá của nó chỉ là 2.99 đô Mỹ và nó phù hợp với người mới bắt đầu tìm hiểu về trading.
 
 # Nội dung sách
 Mở đầu cuốn sách, tác giả Andrew Aziz giới thiệu một ngày bình thường của anh diễn ra thế nào. Cụ thể, từ lúc anh dậy sớm hơn múi giờ New York để chuẩn bị ăn sáng, thể thao và trade plan. Tiếp theo là Day trading giúp anh có nhiều thời gian dành cho gia đình làm sao. Anh thể hiện rõ quan điểm nghiêm túc của mình về công việc đã chọn. Anh đưa ra một vài lời khuyên cho những ai xác định theo con đường Day trading.
