@@ -25,7 +25,7 @@ Phần cuối, sau khi đã giới thiệu về Day trading, Trading strategies.
 # Sau khi đọc xong
 Sau khi đọc xong cuốn sách này, với mình thấy nó rất đáng tiền, đơn giản vì 2 điều:
 - Đây là một cuốn sách dành cho beginner, nhiệm vụ của nó chỉ mang tính giới thiệu, định hướng, và nó đã làm tròn trách nhiệm cảu mình. Từ ngữ trong cuốn sách này hoàn toàn dễ hiểu, thích hợp cho những ai thích trading mà chưa biết bắt đầu từ đâu.
-- Với giá chỉ là 2.99$, mình không thể tìm được món hời nào tốt hơn. Chắc chắn nếu không làm một trader, nhưng kiến thức cuốn sách này cũng có thể giúp mình có một cái nhìn khác về quản lý rủi ro, và chút ít thông tin để không bị ngu ngơ như bò khi có vô tình nghe các bạn làm giàu đa cấp chém gió về chứng khoán.
+- Với giá chỉ là 2.99$, mình không thể tìm được món hời nào tốt hơn. Không làm một trader, nhưng kiến thức cuốn sách này cũng có thể giúp mình có một cái nhìn khác về quản lý rủi ro, chút ít thông tin để không bị ngu ngơ như bò khi có vô tình nghe các bạn làm giàu đa cấp chém gió về chứng khoán.
 
 Mình đọc cuốn này cùng với cuốn Atomic Habits, và thấy cả 2 tác giả đều có một số quan điểm chung giống nhau. Cả 2 đều coi trong quá trình hơn kết quả. Ở Atomic Habits, để thay đổi bản thân trở nên tốt hơn, tác giả khuyên chúng ta nên tập trung vào qúa trình, tập trung vào hình thành những thói quen tốt, hay vì chăm chăm vào mục đích. Ở How-Day-Trade-Living, Andrew cũng nhiều làn nói như vậy, "đừng quan tâm đến số tiền bạn kiếm đc, điều bạn nên quan tâm là plan a trade, trade a plan, nếu bạn làm mọi thứ chuẩn xác, bạn sẽ thành công".
 
