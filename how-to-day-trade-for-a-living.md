@@ -14,7 +14,9 @@ Mở đầu cuốn sách, tác giả Andrew Aziz giới thiệu một ngày bìn
 
 Bằng việc tác giả giới thiệu những việc mình làm hàng ngày, chúng ta có thể hiểu thế nào Day trading, điểm khác nhau nhau chủ yếu giữa các hình thức đầu tư chứng khoán. Đọc hết phần đầu cuốn sách mình đã biết sơ sơ thế nào là trading, và thế cuộc sống của một trader chuyên nghiệp, vì sao giá cổ phiếu lên xuống, ai tham gia vào cuộc chơi này...
 
-Sau khi giới thiệu về Day Trading, có một phần rất quan trọng mà anh Andrew nhắc đi nhắc lại ở xuyên suốt cuốn sách này, quản lý rủi ro. Anh nhắc những người mới rất nhiều lần về việc plan a trade, trade a plan, trading without emotion. Nghe thì dễ, nhưng làm đc những điều trong cuốn sách này khuyên thực sự khó, đa số các trader mới đều bị cháy tài khoản và bỏ cuộc sau một vài lần thua lỗ. Tác giả cũng nhấn mạnh rằng, nếu mọi người học 4 năm ở trường đại học để có một cái nghề thì không có lý do gì bạn trở thành một profitable trader trong vòng 1 năm đầu tiên. Hãy nghiêm túc với công việc trading và đầu tư đủ nhiều vào nó. May mắn không thể ở cạnh bạn mãi. 
+Sau khi giới thiệu về Day Trading, có một phần rất quan trọng mà anh Andrew nhắc đi nhắc lại ở xuyên suốt cuốn sách này, quản lý rủi ro. Anh nhắc những người mới rất nhiều lần về việc plan a trade, trade a plan, trading without emotion. Nghe thì dễ, nhưng làm đc những điều trong cuốn sách này khuyên thực sự khó, đa số các trader mới đều bị cháy tài khoản và bỏ cuộc sau một vài lần thua lỗ. Live to trade in another days.
+
+Tác giả cũng nhấn mạnh rằng, nếu mọi người học 4 năm ở trường đại học để có một cái nghề thì không có lý do gì bạn trở thành một profitable trader trong vòng 1 năm đầu tiên. Hãy nghiêm túc với công việc trading và đầu tư đủ nhiều vào nó. May mắn không thể ở cạnh bạn mãi. 
 
 Nếu ai muốn tìm hiểu về các kỹ thuật trading thì có vẻ đây không phải làm một cuốn sách thoả mãn nhu cầu của bạn đâu.
 
