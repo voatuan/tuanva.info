@@ -2,6 +2,8 @@
 
 Một cuốn sách không bao giờ có thể thay đổi một cuộc đời. Bạn không thể bằng việc đọc một cuốn sách mà kiếm được hàng ngàn đô mỗi ngày. Nhưng đây có thể là cuốn sách giúp bạn tìm hiểu về cuộc sống của một Day Trader.
 
+![How-Day-Trade-Living-Management.md](/9781535585958.jpg)
+
 How-Day-Trade-Living là cuốn sách được đánh giá nhiều nhất về chủ đề trading trên amazon. Có thể vì giá của nó chỉ là 2.99 đô Mỹ và nó phù hợp với người mới bắt đầu tìm hiểu về trading.
 
 # Nội dung sách
