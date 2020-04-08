@@ -1,3 +1,6 @@
+How Day Trade Living Management
+==============
+
 # Giới thiệu
 
 Một cuốn sách không bao giờ có thể thay đổi một cuộc đời. Bạn không thể bằng việc đọc một cuốn sách mà kiếm được hàng ngàn đô mỗi ngày. Nhưng đây có thể là cuốn sách giúp bạn tìm hiểu về cuộc sống của một Day Trader.
