@@ -1,4 +1,4 @@
-How Day Trade Living
+How To Day Trade For A Living
 ==============
 
 # Giới thiệu
