@@ -1,2 +1,3 @@
-# Ngáo
-Đây là TuanVA
+# TuanVA.Info
+github: github.com/voatuan
+fb: fb.com/tuanva
